@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Anything tech**
 
-- 📫 How to reach me **vnaitik1527@gmail.com**
+- 📫 How to reach me **email: vnaitik1527@gmail.com** **X: Naitik328** **Discord: snailop**
 
 - ⚡ Fun fact **My pseudo name's Snail**
 
